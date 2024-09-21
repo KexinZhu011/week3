@@ -1,1 +1,1 @@
-# week3
+# week3 class activities
